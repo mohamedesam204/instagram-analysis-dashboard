@@ -201,6 +201,4 @@ DAX
 👤 Created by: Mohamed Essam 
 📎 LinkedIn:https://www.linkedin.com/in/mohamed-esam-khodary-84647a27b
 
-أو Executive Summary
 
-أو نسخة مختصرة جدًا للـ Recruiter
